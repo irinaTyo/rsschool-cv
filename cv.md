@@ -38,7 +38,7 @@ Regional processes management (Central Asia), Faculty of World Politics (2018-20
 
 International Relations, Faculty of World Politics (2014-2018)
 
-## Experience
+## Work experience
 __Programme Manager__, DAAD German Academic Exchange Service, Almaty  
 
 +  personal consultations for potential DAAD fellows
