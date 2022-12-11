@@ -50,7 +50,7 @@ __Programme Manager__, DAAD German Academic Exchange Service, Almaty
 ## Extracurricular experience
 + IT Step Academy Academy  
 
-Front-end developer course (05.2022 - present)  
+Front-end developer course (05.2022 - 11.2022)  
 
 Basic knowledge of programming
 
